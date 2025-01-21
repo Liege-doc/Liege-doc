@@ -1,4 +1,4 @@
-# Apresentação: Liége Mara Ferreira de Paula
+# Apresentação: Liege Mara Ferreira de Paula
 
 ## Localização
 **Belo Horizonte - MG**
